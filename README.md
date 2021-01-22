@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ariq140199@gmail.com**
 
-- ⚡ Fun fact **I love coding**
+- ⚡ Fun fact **I was an architecture student**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
